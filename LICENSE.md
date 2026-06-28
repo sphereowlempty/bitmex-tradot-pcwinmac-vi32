@@ -1,4 +1,4 @@
-# 
+# نهائي BitMEX bot التداول وظائف إضافية for Mac OS | مميز BitMEX bot التداول وظائف إضافية for PC Windows. Featuring استراتيجية العودة إلى المتوسط and تحليل الزخم — optimized for maximum performance.
 
 
 
